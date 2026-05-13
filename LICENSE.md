@@ -1,4 +1,4 @@
-# 
+# Sejda PDF for PC | Sejda PDF for Windows vip Addon: compress-PDFs & image-editing offers the most advanced Sejda PDF for PC | Sejda PDF for Windows addon, with compress-PDFs and
 
 
 
